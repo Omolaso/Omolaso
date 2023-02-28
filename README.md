@@ -9,5 +9,5 @@
 - 💬 Ask me about ...
 - 📫 How to reach me: ... -->
 - 😄 Pronouns: He / Him
-- ⚡ Fun fact: I love brainstorming.
+- ⚡ Fun fact: I enjoy brainstorming.
 
